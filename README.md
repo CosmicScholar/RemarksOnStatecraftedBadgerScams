@@ -70,5 +70,5 @@ that is too say, the hound, knowing only the scent a fox leaves behind, can not 
 
 If one has become a target, one has 
 already won half the battle,
-the other half i wise navigation of
+the other half is wise navigation of
 turbulent waters.
