@@ -66,3 +66,4 @@ it is very possible for the consensus to reach a point in which the expectation 
 
 one can learn a lot from the fox and the hound.
 for the fox knows the landscape and the hound only a scent it was told to follow.
+that is too say, the hound, knowing only the scent a fox leaves behind, can not distinguish between a real fox and an object that merely smells of one.
