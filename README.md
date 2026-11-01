@@ -72,3 +72,29 @@ If one has become a target, one has
 already won half the battle,
 the other half is wise navigation of
 turbulent waters.
+
+Should undercover agents engage in 
+intimacy? Professionals say No, but some novices leave footprints on the dash, others are bold enough to comment on an agents facebook admitting to infidelity. 
+
+what if the theater was about the agent's souls and not the target's?
+
+Id ask Carl Jung but agents now adays cant read and resort to an ever weakening consensus.
+
+question is how much is needed from a target to create a theater in which the agents themselves cannot leave the stage?
+
+Reminds me of the boat and the enderman, and something about glue traps on rats not being something ill ever get over - its a brutal way to go.
+
+Also a note on hollywood - i get the methods of operation - basically humans are just meat - and they operate like that one mask cult from game of thrones - meaning that once they cultivate an image - they can get anyone else to play it. 
+
+whatever, if anything, happens to the original is something id be interestes in finding out. 
+
+also where does a cult like that get so many fresh bodies? i mean surely theyd be running out of willing and desperate souls. 
+
+what happens when no mask matches the play they've quadrupled down on?
+
+what happens when targets begin scrutinizing psychological studies because some of the patients ended up comitting crimes with DNA evidence under completely different names and compeltely different psychological profiles?
+if studies can be swayed by bad actors and scrutinity of the very foundation they deploy causes more resources to be diverted to saving the theater, how long before the agents themselves become viewed as just weight that needs to be shed off for the sake of survival?
+
+An agent knows what his employer is capable of and what the expectations are.
+
+the target has no such responsibilities, that includes the mandated and random drug testing for agents (cocaine, speed, amphetamines, etc). Some agents are more at risk than others! I'd be careful about any "sexual" escapades during work hours.
