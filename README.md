@@ -65,4 +65,4 @@ the theater operates on consensus.
 it is very possible for the consensus to reach a point in which the expectation is for theater itself to begin collapsing under its own weight.
 
 one can learn a lot from the fox and the hound.
-for one knows the landacape and another only tracks a scent.
+for the fox knows the landscape and the hound only a scent it was told to follow.
