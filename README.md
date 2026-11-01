@@ -40,5 +40,11 @@ Stepping away from the tracks: What
 happens when the target steps outside
 the designated theater? how can the 
 target of such asymmetry use their own
-resources againts them?
+resources againts them? what is a manufactured consensus? and how strong is it?
+
+How to trace auction sales (pokemon card binder) and why that matters.
+
+would you sell your son's items if they were a gift from a friend?
+
+next well dwell on how some state actors can go as far as swapping family members and how remote molecular resonance can bypass plastic surgery 
 
