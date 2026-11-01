@@ -46,5 +46,20 @@ How to trace auction sales (pokemon card binder) and why that matters.
 
 would you sell your son's items if they were a gift from a friend?
 
-next well dwell on how some state actors can go as far as swapping family members and how remote molecular resonance can bypass plastic surgery 
+next well dwell on how some state actors can go as far as swapping family members and how remote molecular resonance can bypass plastic surgery obfuscation.
 
+embedded agent may deploy gas lighting techniques, and use memory manipualtion to their advantage, when at this stage it is best for the target to always deescalate dialogue and focus on superficial conversation, never make verbal arrangements unless clearly written, even then caution is advised.
+
+Remember the theather needs the target,
+the target does not need the theater.
+
+always be cautios when the dialogue of the play begins to align with your ideas, as this is the parasitic deployment of statecraft.
+for if they cannot bury a target they would slowly co-opt things until the target is once again part of the theater.
+
+crucial details to note are that once the theater is on fire, there are few actors willing to burn on stage, the most powerful position for a target is to become an observer of the fire - because if the theater is letting something happen is because they have calculated a way to entrapt the target later on.
+
+
+for inexperienced targeta it is best to study spycraft and always remember 
+the theater operates on consensus.
+
+it is very possible for the consensus to reach a point in which the expectation is for theater itself to begin collapsing under the weight of itself.
