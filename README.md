@@ -22,3 +22,16 @@ Preemptive narrative warping - streaming - and or social media presence may give
 the first step is to identify the scope
 of the theater.
 
+the second is identifying the "truth" or "actions" that the theater is meant
+to contain.
+
+always remember that the truth is free
+while maintaining a narrative is 
+resource draining and can be viewed under
+the same mechanics used the supply chain a marching force requires.
+
+While the ones that own the theater may
+have access to all state tools such
+as top of the line agents, video editing tools, and funds, the target of such assymetry must remember that
+such leverage becomes like a train bound to a single track, should the target be "mentally stable" being able to step away from the tracks becomes
+trivial.
